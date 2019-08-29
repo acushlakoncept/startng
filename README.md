@@ -6,3 +6,6 @@ https://res.cloudinary.com/acushlakoncepts/image/upload/v1566997705/uduak_vraouj
 
 Lucid Blog Post:
 https://lucid.blog/acushla/post/html-semantics-cv-html-demo-page-644
+
+Twitter Post:
+https://twitter.com/acushlakoncept/status/1166708992434946049
